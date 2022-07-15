@@ -20,6 +20,6 @@
 
 
 ## 3D Case
-Get the Case:  [thingiverser](https://www.thingiverse.com/thing:5431985)
+Get the Case:  [Thingiverse](https://www.thingiverse.com/thing:5431985)
 
 You like it? Then I would be very happy if you treat me to a coffee on [ko-fi.com/pixeledi](https://www.ko-fi.com/pixeledi)
